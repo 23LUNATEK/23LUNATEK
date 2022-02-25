@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @23LUNATEK
-- 👀 I’m interested in privacy underground tekno partys
+- 👀 I’m interested in privacy online and i live for underground tekno partys
 - 🌱 I’m currently learning.. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
